@@ -11,4 +11,4 @@ Meu nome é Letícia Borges
 leborges@prof.educacao.sp.gov.br
 @leticiaborges95
 
-![Bem Vindos](https://tenor.com/bbynL.gif](https://tenor.com/bRHDI.gif)
+![.](https://media1.tenor.com/m/0J_tmuUnUd0AAAAC/finger-hearts-jungkook-heart.gif)
